@@ -5,4 +5,6 @@
 >👻𝑆𝑛𝑃: 𝑘𝑢𝑟𝑑𝑖𝑠𝑡𝑎𝑛𝑖𝑠𝑙𝑖20
 >𝑀𝑦 𝑆𝑇𝐴𝐹𝐹: https://dsc.gg/𝖲𝖮𝖫𝖮𝖶𝖠𝖱
 <\--->
-   https://cdn.discordapp.com/attachments/846446181034885151/924253305570492436/jeep-logo-394BD0DCC8-seeklogo.com.png
+
+![jeep-logo-394BD0DCC8-seeklogo com](https://user-images.githubusercontent.com/96650986/147383605-d08279da-2c95-4dde-95c3-453c10cd886d.png)
+
